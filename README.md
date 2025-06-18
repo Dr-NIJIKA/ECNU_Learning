@@ -1,1 +1,1 @@
-## ECNU labs :ok_woman:
+## ECNU labs and notes :ok_woman:
